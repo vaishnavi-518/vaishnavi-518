@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vaishnavi-518
 - 👀 I’m interested in Commerce & Finance
-- 🌱 I’m currently learning SAP ERP for Accounting
+- 🌱 I’m currently pursuing US CMA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me vaishnavi.gunasekaran5@gmail.com
 
